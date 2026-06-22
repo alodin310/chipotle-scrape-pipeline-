@@ -52,6 +52,50 @@ PhotosVideoAudioDocumentsEventsStandard
 
 [Basic Search](https://newsroom.chipotle.com/press-releases#)
 
+- [![](https://newsroom.chipotle.com/file.php/181019/2XKO-+buy+get+2026+16x9_v2+copy_800.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO)
+
+
+
+Jun 16, 2026
+
+
+
+[CHIPOTLE AND RIOT GAMES SERVE UP THEIR BIGGEST COLLABORATION YET WITH FIRST-EVER BRANDED LOBBY IN 2XKOOpens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO)
+
+
+
+
+
+Building on their 2025 collaboration, Chipotle and Riot Games are teaming up for the biggest 2XKO activation yet, giving players new ways to engage through the 2XKO Real Ones Event presented by...
+
+
+
+
+
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO#assets_20295_122866-117)
+
+- [![](https://mmx.prnewswire.com/media/MS1858810/Soccer_BOGO_Lockup_PR_Asset.jpg?id=OA2690089&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS)
+
+
+
+Jun 8, 2026
+
+
+
+[CHIPOTLE KICKS OFF SUMMER'S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING SOCCER JERSEYSOpens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS)
+
+
+
+
+
+All fans who wear a soccer jersey to Chipotle restaurants in the U.S., Canada and U.K. on June 11, after 3 p.m. local time, can receive a buy-one-get-one free entrée1 Chipotle is releasing its...
+
+
+
+
+
+  - [Photos2Opens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS#assets_20295_122865-117)
+
 - [![](https://mmx.prnewswire.com/media/MS1853469/53_Years-53_Real_Ingredients.jpg?id=OA2644601&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-06-03-53-YEARS-53-REAL-INGREDIENTS-CHIPOTLE-TO-GIVE-AWAY-53,000-FREE-BURRITOS-FOR-THE-MENS-PROFESSIONAL-BASKETBALL-CHAMPIONSHIP-SERIES)
 
 
@@ -107,50 +151,6 @@ The 2026 program introduces simplified monthly rewards, local leaderboards and s
 
 
   - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-05-28-CHIPOTLES-SUMMER-OF-EXTRAS-RETURNS,-WITH-STREAK-BASED-REWARDS-AND-LOCAL-RANKINGS-TO-GAMIFY-THE-REWARDS-EXPERIENCE#assets_20295_122862-117)
-
-- [![](https://newsroom.chipotle.com/image/Graduation_PRAsset__mid.jpg)Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER)
-
-
-
-May 11, 2026
-
-
-
-[CHIPOTLE REVEALS AMERICA’S MOST CHIPOTLE-OBSESSED COLLEGE TOWNS AND CELEBRATES THE CLASS OF 2026 WITH GIFT CARD OFFER Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER)
-
-
-
-
-
-New Chipotle U Rewards data highlights top group-order campuses, delivery hotspots and regional flavor trends Starting May 14, the first 10,000 guests who purchase $40 or more in graduation-themed...
-
-
-
-
-
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER#assets_20295_122861-117)
-
-- [![](https://newsroom.chipotle.com/file.php/180989/Chipotle-Cobra-Image_1200px.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-05-05-MAX-HOMA-BRINGS-BACK-VIRAL-CHIPOTLE-X-COBRA-BURRITO-HEADCOVER-TO-THE-PGA-TOUR)
-
-
-
-May 5, 2026
-
-
-
-[MAX HOMA BRINGS BACK VIRAL CHIPOTLE X COBRA BURRITO HEADCOVER TO THE PGA TOUROpens in new window](https://newsroom.chipotle.com/2026-05-05-MAX-HOMA-BRINGS-BACK-VIRAL-CHIPOTLE-X-COBRA-BURRITO-HEADCOVER-TO-THE-PGA-TOUR)
-
-
-
-
-
-NEWPORT BEACH, Calif., May 5, 2026 – Max Homa is giving fans another shot at one of golf’s most talked-about accessories. After selling out in under three hours last year, the limited-edition...
-
-
-
-
-
-  - [Photos2Opens in new window](https://newsroom.chipotle.com/2026-05-05-MAX-HOMA-BRINGS-BACK-VIRAL-CHIPOTLE-X-COBRA-BURRITO-HEADCOVER-TO-THE-PGA-TOUR#assets_20295_122860-117)
 
 Show
 
