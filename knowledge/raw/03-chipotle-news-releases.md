@@ -1,42 +1,40 @@
-Source: https://newsroom.chipotle.com/press-releases
+Source: https://newsroomeu.chipotle.com/press-releases
 
-[Skip to main content](https://newsroom.chipotle.com/press-releases#content)
+[Skip to main content](https://newsroomeu.chipotle.com/press-releases#content)
 
 # CHIPOTLE NEWS RELEASES
 
 News releases are archived for three years and are presented in chronological order. Please use the search bar below to search News Releases.
 
-April 2026
+June 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 29 | 30 | 31 | 1 | 2 | 3 | 4 |
+| 31 | 1 | 2 | 3 | 4 | 5 | 6 |
+| 7 | 8 | 9 | 10 | 11 | 12 | 13 |
+| 14 | 15 | 16 | 17 | 18 | 19 | 20 |
+| 21 | 22 | 23 | 24 | 25 | 26 | 27 |
+| 28 | 29 | 30 | 1 | 2 | 3 | 4 |
 | 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
-| 26 | 27 | 28 | 29 | 30 | 1 | 2 |
-| 3 | 4 | 5 | 6 | 7 | 8 | 9 |
 
 Cancel Go
 
-April 2026
+June 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 29 | 30 | 31 | 1 | 2 | 3 | 4 |
+| 31 | 1 | 2 | 3 | 4 | 5 | 6 |
+| 7 | 8 | 9 | 10 | 11 | 12 | 13 |
+| 14 | 15 | 16 | 17 | 18 | 19 | 20 |
+| 21 | 22 | 23 | 24 | 25 | 26 | 27 |
+| 28 | 29 | 30 | 1 | 2 | 3 | 4 |
 | 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
-| 26 | 27 | 28 | 29 | 30 | 1 | 2 |
-| 3 | 4 | 5 | 6 | 7 | 8 | 9 |
 
 Cancel Go
-
-[Alerts![](https://newsroom.chipotle.com/images/webdriver/email_alerts.png)Opens in new window](https://newsroom.chipotle.com/alerts?type=2)
 
 YearAll Years20262025202420232022202120202019201820172016KeywordsGo
 
-[Advanced Search](https://newsroom.chipotle.com/press-releases#)
+[Advanced Search](https://newsroomeu.chipotle.com/press-releases#)
 
 Search
 
@@ -50,13 +48,35 @@ Asset Types
 
 PhotosVideoAudioDocumentsEventsStandard
 
-[Basic Search](https://newsroom.chipotle.com/press-releases#)
+[Basic Search](https://newsroomeu.chipotle.com/press-releases#)
+
+- [![](https://newsroomeu.chipotle.com/image/UK_PR_0608_800px.jpg)Opens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS)
+
+
+
+Jun 8, 2026
+
+
+
+[CHIPOTLE UK KICKS OFF SUMMER’S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING FOOTBALL KITSOpens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS)
+
+
+
+
+
+All fans who wear a football kit to Chipotle restaurants in the UK on 11 June after 3 p.m. can receive a buy-one-get-one main1 The Matchday BOGO celebrates the shared experiences and traditions...
+
+
+
+
+
+  - [Photos1Opens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS#assets_20295_122837-117)
 
 - Apr 29, 2026
 
 
 
-[CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTSOpens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-ANNOUNCES-FIRST-QUARTER-2026-RESULTS)
+[CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTSOpens in new window](https://newsroomeu.chipotle.com/2026-04-29-CHIPOTLE-ANNOUNCES-FIRST-QUARTER-2026-RESULTS)
 
 
 
@@ -64,55 +84,11 @@ PhotosVideoAudioDocumentsEventsStandard
 
 RETURN TO POSITIVE TRANSACTIONS DRIVES 0.5% COMPARABLE RESTAURANT SALES GROWTH; REVENUE INCREASES 7.4% TO $3.1 BILLION NEWPORT BEACH, Calif., April 29, 2026 /PRNewswire/ -- Chipotle Mexican Grill,...
 
-- [![](https://newsroom.chipotle.com/file.php/180969/CincoCampaignPR_SEO.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-BRINGS-REAL-INGREDIENTS-TO-CINCO-DE-MAYO-WITH-FREE-CHIPS-AND-SIDES)
-
-
-
-Apr 29, 2026
-
-
-
-[CHIPOTLE BRINGS REAL INGREDIENTS TO CINCO DE MAYO WITH FREE CHIPS AND SIDESOpens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-BRINGS-REAL-INGREDIENTS-TO-CINCO-DE-MAYO-WITH-FREE-CHIPS-AND-SIDES)
-
-
-
-
-
-Digital guests can score free Chips and Queso Blanco or free Chips and Guacamole with an entrée purchase on May 5 using code CINCO26 on the Chipotle app and Chipotle.com\* NEWPORT BEACH, Calif.,...
-
-
-
-
-
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-BRINGS-REAL-INGREDIENTS-TO-CINCO-DE-MAYO-WITH-FREE-CHIPS-AND-SIDES#assets_20295_122857-117)
-
-- [![](https://mma.prnewswire.com/media/2968503/Chipotle_Teacher_Healthcare_Giftcards.jpg?p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-TO-GIVE-AWAY-UP-TO-2-MILLION-IN-FREE-BURRITOS-TO-TEACHERS-AND-HEALTHCARE-WORKERS)
-
-
-
-Apr 29, 2026
-
-
-
-[CHIPOTLE TO GIVE AWAY UP TO $2 MILLION IN FREE BURRITOS TO TEACHERS AND HEALTHCARE WORKERSOpens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-TO-GIVE-AWAY-UP-TO-2-MILLION-IN-FREE-BURRITOS-TO-TEACHERS-AND-HEALTHCARE-WORKERS)
-
-
-
-
-
-To celebrate Teacher Appreciation Week (May 4 through May 8) and National Nurses Week (May 6 through May 12), up to 100,000 healthcare workers and 100,000 teachers, randomly selected and verified...
-
-
-
-
-
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-04-29-CHIPOTLE-TO-GIVE-AWAY-UP-TO-2-MILLION-IN-FREE-BURRITOS-TO-TEACHERS-AND-HEALTHCARE-WORKERS#assets_20295_122858-117)
-
 - Apr 27, 2026
 
 
 
-[CHIPOTLE TAPS AWARD-WINNING FERNANDO MACHADO AS CHIEF BRAND OFFICEROpens in new window](https://newsroom.chipotle.com/2026-04-27-CHIPOTLE-TAPS-AWARD-WINNING-FERNANDO-MACHADO-AS-CHIEF-BRAND-OFFICER)
+[CHIPOTLE TAPS AWARD-WINNING FERNANDO MACHADO AS CHIEF BRAND OFFICEROpens in new window](https://newsroomeu.chipotle.com/2026-04-27-CHIPOTLE-TAPS-AWARD-WINNING-FERNANDO-MACHADO-AS-CHIEF-BRAND-OFFICER)
 
 
 
@@ -120,27 +96,40 @@ To celebrate Teacher Appreciation Week (May 4 through May 8) and National Nurses
 
 Appoints Arlie Sisson to newly formed Chief Digital Officer role to accelerate innovation efforts tied to Recipe for Growth strategy NEWPORT BEACH, Calif., April 27, 2026 /PRNewswire/ -- Chipotle...
 
-- [![](https://newsroom.chipotle.com/file.php/180960/1200SustainabilityReportPR.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-04-22-CHIPOTLE-REPORTS-FIRST-CUMULATIVE-REAL-FOODPRINT-RESULTS,-INCLUDING-OVER-616-MILLION-GALLONS-OF-WATER-SAVED-IN-2025)
+- [![](https://newsroomeu.chipotle.com/file.php/177926/1920x1080+CHC+PR+2_1000.jpg?thumbnail=144)Opens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT)
 
 
 
-Apr 22, 2026
+Apr 21, 2026
 
 
 
-[CHIPOTLE REPORTS FIRST CUMULATIVE REAL FOODPRINT RESULTS, INCLUDING OVER 616 MILLION GALLONS OF WATER SAVED IN 2025Opens in new window](https://newsroom.chipotle.com/2026-04-22-CHIPOTLE-REPORTS-FIRST-CUMULATIVE-REAL-FOODPRINT-RESULTS,-INCLUDING-OVER-616-MILLION-GALLONS-OF-WATER-SAVED-IN-2025)
-
-
-
-
-
-For the first time, Chipotle is reporting cumulative Real Foodprint results across all digital orders in 2025, quantifying the estimated environmental impact of its ingredient sourcing standards...
+[CHIPOTLE BRINGS BACK CHIPOTLE HONEY CHICKEN TO THE UK FOLLOWING RECORD-BREAKING DEBUTOpens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT)
 
 
 
 
 
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-04-22-CHIPOTLE-REPORTS-FIRST-CUMULATIVE-REAL-FOODPRINT-RESULTS,-INCLUDING-OVER-616-MILLION-GALLONS-OF-WATER-SAVED-IN-2025#assets_20295_122855-117)
+After launching in the UK in 2025, Chipotle Honey Chicken became the brand’s best-performing limited-time offering Guests across the UK can order the protein from April 28 Chipotle Honey Chicken...
+
+
+
+
+
+  - [Photos1Opens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT#assets_20295_122833-117)
+
+- Mar 17, 2026
+
+
+
+[CHIPOTLE MEXICAN GRILL TO ANNOUNCE FIRST QUARTER 2026 RESULTS ON APRIL 29, 2026Opens in new window](https://newsroomeu.chipotle.com/2026-03-17-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-FIRST-QUARTER-2026-RESULTS-ON-APRIL-29,-2026)
+
+
+
+
+
+Chipotle Mexican Grill (NYSE: CMG) will host a conference call on Wednesday, April 29, 2026, at 4:30 p.m. ET to discuss first quarter 2026 financial results and provide a business update for the...
+
 
 Show
 
@@ -148,11 +137,11 @@ Show
 
 per page
 
-- [print](https://newsroom.chipotle.com/press-releases#print "print")
-- [Opens in new window](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Facebook Share")
-- [Opens in new window](https://www.linkedin.com/shareArticle?mini=true&url=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Linkedin Share")
-- [Opens in new window](https://twitter.com/share?url=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Twitter Share")
-- [email](https://newsroom.chipotle.com/press-releases#email "email")
-- [Opens in new window](https://newsroom.chipotle.com/index.php?s=20324&rsspage=20295 "rss")
+- [print](https://newsroomeu.chipotle.com/press-releases#print "print")
+- [Opens in new window](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Facebook Share")
+- [Opens in new window](https://www.linkedin.com/shareArticle?mini=true&url=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Linkedin Share")
+- [Opens in new window](https://twitter.com/share?url=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Twitter Share")
+- [email](https://newsroomeu.chipotle.com/press-releases#email "email")
+- [Opens in new window](https://newsroomeu.chipotle.com/index.php?s=20324&rsspage=20295 "rss")
 
-[5Opens in new window](https://newsroom.chipotle.com/press-releases?l=5) [10Opens in new window](https://newsroom.chipotle.com/press-releases?l=10) [25Opens in new window](https://newsroom.chipotle.com/press-releases?l=25) [50Opens in new window](https://newsroom.chipotle.com/press-releases?l=50) [100Opens in new window](https://newsroom.chipotle.com/press-releases?l=100)
+[5Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=5) [10Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=10) [25Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=25) [50Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=50) [100Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=100)
