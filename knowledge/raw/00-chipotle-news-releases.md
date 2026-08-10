@@ -6,29 +6,29 @@ Source: https://newsroom.chipotle.com/press-releases
 
 News releases are archived for three years and are presented in chronological order. Please use the search bar below to search News Releases.
 
-July 2026
+August 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 28 | 29 | 30 | 1 | 2 | 3 | 4 |
-| 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
 | 26 | 27 | 28 | 29 | 30 | 31 | 1 |
 | 2 | 3 | 4 | 5 | 6 | 7 | 8 |
+| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
+| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
+| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
+| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
 
 Cancel Go
 
-July 2026
+August 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 28 | 29 | 30 | 1 | 2 | 3 | 4 |
-| 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
 | 26 | 27 | 28 | 29 | 30 | 31 | 1 |
 | 2 | 3 | 4 | 5 | 6 | 7 | 8 |
+| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
+| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
+| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
+| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
 
 Cancel Go
 
@@ -51,6 +51,18 @@ Asset Types
 PhotosVideoAudioDocumentsEventsStandard
 
 [Basic Search](https://newsroom.chipotle.com/press-releases#)
+
+- Aug 5, 2026
+
+
+
+[A Statement from Chipotle on Food SafetyOpens in new window](https://newsroom.chipotle.com/2026-08-04-A-Statement-from-Chipotle-on-Food-Safety)
+
+
+
+
+
+The health and safety of our guests and employees is our highest priority. We have a robust ingredient traceability system and, upon learning of a potential Salmonella outbreak in the supply chain impacting wholesalers...
 
 - Jul 29, 2026
 
@@ -129,28 +141,6 @@ Chipotle and Alsea plan additional openings in Nuevo León this year and expansi
 
 
   - [Photos2Opens in new window](https://newsroom.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON#assets_20295_122869-117)
-
-- [![2K Golfer](https://newsroom.chipotle.com/file.php/181036/2K+Golfer.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION)
-
-
-
-Jul 8, 2026
-
-
-
-[CHIPOTLE BRINGS REAL-WORLD FOOD REWARDS TO PGA TOUR 2K25 IN FIRST-OF-ITS-KIND QUEST INTEGRATIONOpens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION)
-
-
-
-
-
-Chipotle’s new PGA TOUR 2K25 Quests will give players the chance to earn free food and unlock exclusive in-game gear1 The integration launches today with Season 7 of PGA TOUR 2K25 Chipotle will...
-
-
-
-
-
-  - [Photos3Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION#assets_20295_122868-117)
 
 Show
 
