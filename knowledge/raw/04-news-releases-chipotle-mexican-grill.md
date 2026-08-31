@@ -1,28 +1,28 @@
-Source: https://ir.chipotle.com/Financial-Releases?l=10&o=10
+Source: https://ir.chipotle.com/Financial-Releases
 
-April 2026
+August 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 29 | 30 | 31 | 1 | 2 | 3 | 4 |
-| 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
-| 26 | 27 | 28 | 29 | 30 | 1 | 2 |
-| 3 | 4 | 5 | 6 | 7 | 8 | 9 |
+| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
+| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
+| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
+| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
+| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
+| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
 
 Cancel Go
 
-April 2026
+August 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 29 | 30 | 31 | 1 | 2 | 3 | 4 |
-| 5 | 6 | 7 | 8 | 9 | 10 | 11 |
-| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
-| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
-| 26 | 27 | 28 | 29 | 30 | 1 | 2 |
-| 3 | 4 | 5 | 6 | 7 | 8 | 9 |
+| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
+| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
+| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
+| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
+| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
+| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
 
 Cancel Go
 
@@ -30,7 +30,7 @@ Cancel Go
 
 YearAll Years20262025202420232022202120202019201820172016CategoryAll CategoriesFinancial ReleasesUncategorizedKeywordsGo
 
-[Advanced Search](https://ir.chipotle.com/Financial-Releases?l=10&o=10#)
+[Advanced Search](https://ir.chipotle.com/Financial-Releases#)
 
 Search
 
@@ -48,112 +48,58 @@ Asset Types
 
 PhotosAudioDocumentsEventsStandard
 
-[Basic Search](https://ir.chipotle.com/Financial-Releases?l=10&o=10#)
+[Basic Search](https://ir.chipotle.com/Financial-Releases#)
 
-- Jun 3, 2025
+- Jul 29, 2026
 
 
 
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2025 RESULTS ON JULY 23, 2025](https://ir.chipotle.com/2025-06-03-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-SECOND-QUARTER-2025-RESULTS-ON-JULY-23,-2025)
+[CHIPOTLE RAISES FULL YEAR COMPARABLE SALES GUIDANCE ON STRONG Q2 MOMENTUM](https://ir.chipotle.com/2026-07-29-CHIPOTLE-RAISES-FULL-YEAR-COMPARABLE-SALES-GUIDANCE-ON-STRONG-Q2-MOMENTUM)
 
-- [![](https://mma.prnewswire.com/media/2668566/Alsea_Partnership_Announcement_CHIPOTLE.jpg?p=thumbnail)](https://ir.chipotle.com/2025-04-21-CHIPOTLE-SIGNS-DEVELOPMENT-AGREEMENT-WITH-ALSEA-TO-OPEN-RESTAURANTS-IN-MEXICO-FOR-THE-FIRST-TIME)
+- [![](https://mmx.prnewswire.com/media/MS1881435/Chipotle-Mexican-Grill.jpg?id=OA2759598&p=thumbnail)](https://ir.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON)
 
 
 
-Apr 21, 2025
+Jul 13, 2026
 
 
 
-[CHIPOTLE SIGNS DEVELOPMENT AGREEMENT WITH ALSEA TO OPEN RESTAURANTS IN MEXICO FOR THE FIRST TIME](https://ir.chipotle.com/2025-04-21-CHIPOTLE-SIGNS-DEVELOPMENT-AGREEMENT-WITH-ALSEA-TO-OPEN-RESTAURANTS-IN-MEXICO-FOR-THE-FIRST-TIME)
+[CHIPOTLE ENTERS MEXICO WITH FIRST RESTAURANT IN NUEVO LEÓN](https://ir.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON)
 
 
 
-  - [PhotosPhotos1](https://ir.chipotle.com/2025-04-21-CHIPOTLE-SIGNS-DEVELOPMENT-AGREEMENT-WITH-ALSEA-TO-OPEN-RESTAURANTS-IN-MEXICO-FOR-THE-FIRST-TIME#assets_20295_122784-3)
+  - [PhotosPhotos2](https://ir.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON#assets_20295_122843-3)
 
-- Mar 18, 2025
+- Jun 2, 2026
 
 
 
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE FIRST QUARTER 2025 RESULTS ON APRIL 23, 2025](https://ir.chipotle.com/2025-03-18-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-FIRST-QUARTER-2025-RESULTS-ON-APRIL-23,-2025)
+[CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2026 RESULTS ON JULY 29, 2026](https://ir.chipotle.com/2026-06-02-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-SECOND-QUARTER-2026-RESULTS-ON-JULY-29,-2026)
 
-- Feb 4, 2025
+- Apr 29, 2026
 
 
 
-[CHIPOTLE ANNOUNCES FOURTH QUARTER AND FULL YEAR 2024 RESULTS](https://ir.chipotle.com/2025-02-04-CHIPOTLE-ANNOUNCES-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS)
+[CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS](https://ir.chipotle.com/2026-04-29-CHIPOTLE-ANNOUNCES-FIRST-QUARTER-2026-RESULTS)
 
-- [![](https://mma.prnewswire.com/media/2598324/Chipotle_Plantible_Duckweed.jpg?p=thumbnail)](https://ir.chipotle.com/2025-01-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AQUATIC-PLANT-BASED-TECHNOLOGIES-THAT-AIM-TO-EMULATE-ANIMAL-PROTEIN-AND-SCALE-MORE-SUSTAINABLE-CATTLE-FEED)
+- Apr 27, 2026
 
 
 
-Jan 15, 2025
-
-
-
-[CHIPOTLE'S CULTIVATE NEXT FUND INVESTS IN AQUATIC PLANT-BASED TECHNOLOGIES THAT AIM TO EMULATE ANIMAL PROTEIN AND SCALE MORE SUSTAINABLE CATTLE FEED](https://ir.chipotle.com/2025-01-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AQUATIC-PLANT-BASED-TECHNOLOGIES-THAT-AIM-TO-EMULATE-ANIMAL-PROTEIN-AND-SCALE-MORE-SUSTAINABLE-CATTLE-FEED)
-
-
-
-  - [PhotosPhotos2](https://ir.chipotle.com/2025-01-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AQUATIC-PLANT-BASED-TECHNOLOGIES-THAT-AIM-TO-EMULATE-ANIMAL-PROTEIN-AND-SCALE-MORE-SUSTAINABLE-CATTLE-FEED#assets_20295_122775-3)
-
-- Dec 3, 2024
-
-
-
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE FOURTH QUARTER AND FULL YEAR 2024 RESULTS ON FEBRUARY 4, 2025](https://ir.chipotle.com/2024-12-03-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS-ON-FEBRUARY-4,-2025)
-
-- [![](https://mma.prnewswire.com/media/2554215/2024_ScottBoatwright_Chipotle_CEO.jpg?p=thumbnail)](https://ir.chipotle.com/2024-11-11-CHIPOTLE-NAMES-SCOTT-BOATWRIGHT-CHIEF-EXECUTIVE-OFFICER-AND-MEMBER-OF-THE-BOARD)
-
-
-
-Nov 11, 2024
-
-
-
-[CHIPOTLE NAMES SCOTT BOATWRIGHT CHIEF EXECUTIVE OFFICER AND MEMBER OF THE BOARD](https://ir.chipotle.com/2024-11-11-CHIPOTLE-NAMES-SCOTT-BOATWRIGHT-CHIEF-EXECUTIVE-OFFICER-AND-MEMBER-OF-THE-BOARD)
-
-
-
-  - [PhotosPhotos1](https://ir.chipotle.com/2024-11-11-CHIPOTLE-NAMES-SCOTT-BOATWRIGHT-CHIEF-EXECUTIVE-OFFICER-AND-MEMBER-OF-THE-BOARD#assets_20295_122770-3)
-
-- Oct 29, 2024
-
-
-
-[CHIPOTLE ANNOUNCES THIRD QUARTER 2024 RESULTS](https://ir.chipotle.com/2024-10-29-CHIPOTLE-ANNOUNCES-THIRD-QUARTER-2024-RESULTS)
-
-- [![](https://mma.prnewswire.com/media/2530041/Lumachain.jpg?p=thumbnail)](https://ir.chipotle.com/2024-10-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AI-SUPPLY-CHAIN-SOLUTION-AND-EMERGING-FAST-CASUAL-CONCEPT)
-
-
-
-Oct 15, 2024
-
-
-
-[CHIPOTLE'S CULTIVATE NEXT FUND INVESTS IN AI SUPPLY CHAIN SOLUTION AND EMERGING FAST-CASUAL CONCEPT](https://ir.chipotle.com/2024-10-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AI-SUPPLY-CHAIN-SOLUTION-AND-EMERGING-FAST-CASUAL-CONCEPT)
-
-
-
-  - [PhotosPhotos2](https://ir.chipotle.com/2024-10-15-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-AI-SUPPLY-CHAIN-SOLUTION-AND-EMERGING-FAST-CASUAL-CONCEPT#assets_20295_122767-3)
-
-- Sep 4, 2024
-
-
-
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE THIRD QUARTER 2024 RESULTS ON OCTOBER 29, 2024](https://ir.chipotle.com/2024-09-04-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-THIRD-QUARTER-2024-RESULTS-ON-OCTOBER-29,-2024)
+[CHIPOTLE TAPS AWARD-WINNING FERNANDO MACHADO AS CHIEF BRAND OFFICER](https://ir.chipotle.com/2026-04-27-CHIPOTLE-TAPS-AWARD-WINNING-FERNANDO-MACHADO-AS-CHIEF-BRAND-OFFICER)
 
 
 Show
 
-10Open
+5Open
 
 per page
 
-- [print](https://ir.chipotle.com/Financial-Releases?l=10&o=10#print "print")
+- [print](https://ir.chipotle.com/Financial-Releases#print "print")
 - [Facebook Share](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fir.chipotle.com%2Findex.php%3Fs%3D20295 "Facebook Share")
 - [Linkedin Share](https://www.linkedin.com/shareArticle?mini=true&url=https%3A%2F%2Fir.chipotle.com%2Findex.php%3Fs%3D20295 "Linkedin Share")
 - [Twitter Share](https://twitter.com/share?url=https%3A%2F%2Fir.chipotle.com%2Findex.php%3Fs%3D20295 "Twitter Share")
-- [email](https://ir.chipotle.com/Financial-Releases?l=10&o=10#email "email")
+- [email](https://ir.chipotle.com/Financial-Releases#email "email")
 - [rss](https://ir.chipotle.com/index.php?s=95&rsspage=20295 "rss")
 
 [Close modal](https://www.chipotle.com/whats-new#)
