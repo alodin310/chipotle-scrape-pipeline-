@@ -4,29 +4,29 @@ Source: https://ir.chipotle.com/news-releases
 
 These are news releases that are related to our Investor efforts.  Releases are listed in chronological order and are archived by year.  Sign-up to receive news as it is released using the email and RSS tools below.
 
-August 2026
+September 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
-| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
-| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
-| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
-| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
 | 30 | 31 | 1 | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 1 | 2 | 3 |
+| 4 | 5 | 6 | 7 | 8 | 9 | 10 |
 
 Cancel Go
 
-August 2026
+September 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
-| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
-| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
-| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
-| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
 | 30 | 31 | 1 | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 1 | 2 | 3 |
+| 4 | 5 | 6 | 7 | 8 | 9 | 10 |
 
 Cancel Go
 
@@ -54,67 +54,67 @@ PhotosAudioDocumentsEventsStandard
 
 [Basic Search](https://ir.chipotle.com/news-releases#)
 
-- [![](https://mmx.prnewswire.com/media/MS1969014/CHIPOTLE-MEXICAN-GRILL-New-Restaurant.jpg?id=OA2876403&p=thumbnail)](https://ir.chipotle.com/2026-08-13-CHIPOTLE-DEBUTS-IN-SAUDI-ARABIA-WITH-FIRST-RESTAURANT-IN-RIYADH)
+- [![](https://ir.chipotle.com/file.php/902/1PRAssetChipotle1500thOpening2026_1200SEO.jpg?thumbnail=144)](https://ir.chipotle.com/2026-09-29-CHIPOTLE-REACHES-1,500-CHIPOTLANES,-ADVANCING-NORTH-AMERICAN-GROWTH-STRATEGY)
 
 
 
-Aug 13, 2026
+Sep 29, 2026
 
 
 
-[CHIPOTLE DEBUTS IN SAUDI ARABIA WITH FIRST RESTAURANT IN RIYADH](https://ir.chipotle.com/2026-08-13-CHIPOTLE-DEBUTS-IN-SAUDI-ARABIA-WITH-FIRST-RESTAURANT-IN-RIYADH)
+[CHIPOTLE REACHES 1,500 CHIPOTLANES, ADVANCING NORTH AMERICAN GROWTH STRATEGY](https://ir.chipotle.com/2026-09-29-CHIPOTLE-REACHES-1,500-CHIPOTLANES,-ADVANCING-NORTH-AMERICAN-GROWTH-STRATEGY)
 
 
 
-  - [PhotosPhotos1](https://ir.chipotle.com/2026-08-13-CHIPOTLE-DEBUTS-IN-SAUDI-ARABIA-WITH-FIRST-RESTAURANT-IN-RIYADH#assets_20295_122848-3)
+  - [PhotosPhotos4](https://ir.chipotle.com/2026-09-29-CHIPOTLE-REACHES-1,500-CHIPOTLANES,-ADVANCING-NORTH-AMERICAN-GROWTH-STRATEGY#assets_20295_122859-3)
 
-- [![](https://mmx.prnewswire.com/media/MS1967459/ChipotleIq_Sweepstakes_1920x1080.jpg?id=OA2854285&p=thumbnail)](https://ir.chipotle.com/2026-08-11-CHIPOTLE-IQ-RETURNS-WITH-MORE-THAN-1-MILLION-IN-FREE-CHIPOTLE,-PLUS-NEW-DAILY-STREAKS,-SILVER-TICKETS-AND-A-COLLECTIBLE-CARD-GAME)
-
-
-
-Aug 11, 2026
+- [![](https://mmx.prnewswire.com/media/MS1996285/2609_CMG_Boorito26_PR-ASSETS_CrystalBall_v1_1920x1080.jpg?id=OA2970628&p=thumbnail)](https://ir.chipotle.com/2026-09-28-CHIPOTLE-SUMMONS-THE-RETURN-OF-MARGARITAS-IN-THE-COUNTDOWN-TO-BOORITO)
 
 
 
-[CHIPOTLE IQ RETURNS WITH MORE THAN $1 MILLION IN FREE CHIPOTLE, PLUS NEW DAILY STREAKS, SILVER TICKETS AND A COLLECTIBLE CARD GAME](https://ir.chipotle.com/2026-08-11-CHIPOTLE-IQ-RETURNS-WITH-MORE-THAN-1-MILLION-IN-FREE-CHIPOTLE,-PLUS-NEW-DAILY-STREAKS,-SILVER-TICKETS-AND-A-COLLECTIBLE-CARD-GAME)
+Sep 28, 2026
 
 
 
-  - [PhotosPhotos1](https://ir.chipotle.com/2026-08-11-CHIPOTLE-IQ-RETURNS-WITH-MORE-THAN-1-MILLION-IN-FREE-CHIPOTLE,-PLUS-NEW-DAILY-STREAKS,-SILVER-TICKETS-AND-A-COLLECTIBLE-CARD-GAME#assets_20295_122847-3)
-
-- Jul 29, 2026
+[CHIPOTLE SUMMONS THE RETURN OF MARGARITAS IN THE COUNTDOWN TO BOORITO](https://ir.chipotle.com/2026-09-28-CHIPOTLE-SUMMONS-THE-RETURN-OF-MARGARITAS-IN-THE-COUNTDOWN-TO-BOORITO)
 
 
 
-[CHIPOTLE RAISES FULL YEAR COMPARABLE SALES GUIDANCE ON STRONG Q2 MOMENTUM](https://ir.chipotle.com/2026-07-29-CHIPOTLE-RAISES-FULL-YEAR-COMPARABLE-SALES-GUIDANCE-ON-STRONG-Q2-MOMENTUM)
+  - [PhotosPhotos2](https://ir.chipotle.com/2026-09-28-CHIPOTLE-SUMMONS-THE-RETURN-OF-MARGARITAS-IN-THE-COUNTDOWN-TO-BOORITO#assets_20295_122858-3)
 
-- [![](https://mmx.prnewswire.com/media/MS1958648/Chipotle-Mexican-Grill-National-Avocado-Day.jpg?id=OA2794606&p=thumbnail)](https://ir.chipotle.com/2026-07-27-CHIPOTLE-CELEBRATES-NATIONAL-AVOCADO-DAY-WITH-FREE-CHIPS-AND-GUAC)
-
-
-
-Jul 27, 2026
+- [![](https://mmx.prnewswire.com/media/MS1988448/A009C002_241108LK_Karen_B_Option1-1.jpg?id=OA2948884&p=thumbnail)](https://ir.chipotle.com/2026-09-15-CHIPOTLE-EXPANDS-RESTAURANT-LEADERSHIP-PIPELINE,-AIMS-TO-PLACE-AN-APPRENTICE-IN-EVERY-RESTAURANT-BY-THE-END-OF-2027)
 
 
 
-[CHIPOTLE CELEBRATES NATIONAL AVOCADO DAY WITH FREE CHIPS AND GUAC](https://ir.chipotle.com/2026-07-27-CHIPOTLE-CELEBRATES-NATIONAL-AVOCADO-DAY-WITH-FREE-CHIPS-AND-GUAC)
+Sep 15, 2026
 
 
 
-  - [PhotosPhotos1](https://ir.chipotle.com/2026-07-27-CHIPOTLE-CELEBRATES-NATIONAL-AVOCADO-DAY-WITH-FREE-CHIPS-AND-GUAC#assets_20295_122845-3)
-
-- [![](https://mmx.prnewswire.com/media/MS1884012/1920x1080-Chipotle-Water-Break.jpg?id=OA2766770&p=thumbnail)](https://ir.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS)
+[CHIPOTLE EXPANDS RESTAURANT LEADERSHIP PIPELINE, AIMS TO PLACE AN APPRENTICE IN EVERY RESTAURANT BY THE END OF 2027](https://ir.chipotle.com/2026-09-15-CHIPOTLE-EXPANDS-RESTAURANT-LEADERSHIP-PIPELINE,-AIMS-TO-PLACE-AN-APPRENTICE-IN-EVERY-RESTAURANT-BY-THE-END-OF-2027)
 
 
 
-Jul 16, 2026
+  - [PhotosPhotos1](https://ir.chipotle.com/2026-09-15-CHIPOTLE-EXPANDS-RESTAURANT-LEADERSHIP-PIPELINE,-AIMS-TO-PLACE-AN-APPRENTICE-IN-EVERY-RESTAURANT-BY-THE-END-OF-2027#assets_20295_122857-3)
+
+- Sep 14, 2026
 
 
 
-[CHIPOTLE PUTS A NEW TWIST ON SOCCER'S HYDRATION BREAK WITH $1 MILLION IN FREE BURRITOS](https://ir.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS)
+[CHIPOTLE APPOINTS SABIR SAMI TO ITS BOARD OF DIRECTORS](https://ir.chipotle.com/2026-09-14-CHIPOTLE-APPOINTS-SABIR-SAMI-TO-ITS-BOARD-OF-DIRECTORS)
+
+- [![](https://mmx.prnewswire.com/media/MS1980088/Chipotle-Gangnam_Exterior.jpg?id=OA2924917&p=thumbnail)](https://ir.chipotle.com/2026-09-02-CHIPOTLE-ARRIVES-IN-ASIA-WITH-FIRST-RESTAURANT-IN-SEOUL)
 
 
 
-  - [PhotosPhotos1](https://ir.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS#assets_20295_122844-3)
+Sep 2, 2026
+
+
+
+[CHIPOTLE ARRIVES IN ASIA WITH FIRST RESTAURANT IN SEOUL](https://ir.chipotle.com/2026-09-02-CHIPOTLE-ARRIVES-IN-ASIA-WITH-FIRST-RESTAURANT-IN-SEOUL)
+
+
+
+  - [PhotosPhotos2](https://ir.chipotle.com/2026-09-02-CHIPOTLE-ARRIVES-IN-ASIA-WITH-FIRST-RESTAURANT-IN-SEOUL#assets_20295_122855-3)
 
 Show
 
