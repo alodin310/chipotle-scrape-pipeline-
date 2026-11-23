@@ -1,48 +1,42 @@
-Source: https://newsroomeu.chipotle.com/press-releases
+Source: https://newsroom.chipotle.com/press-releases
 
-### Your Privacy Preferences
-
-If you would like to submit a Data Subject Request, please click here: [Data Subject Request Form](https://www.chipotle.com/privacy-request)
-
-We use cookies to enhance your website and app experience, improve functionality and support our marketing efforts. You can manage your cookie preferences by clicking “Do Not Sell or Share My Personal Information / Opt Out.” If you wish to opt out of Chipotle’s sharing your personal information directly with third parties for the purpose of targeted advertising, please click on “Your Privacy Choices” link in the footer of our website and complete the US Consumer Data Request Form found under the Data Subject Rights tab. To learn more, please review our [Cookie Policy](https://www.chipotle.com/cookie-policy) and our visit our recently updated [Privacy Policy,](https://www.chipotle.com/privacy-policy) [including California Privacy Rights](https://www.chipotle.com/privacy-policy). By continuing to access or use our website, you agree to our [Terms of Use](https://www.chipotle.com/terms-of-use) including the arbitration and class action waiver.
-
-Do Not Sell or Share My Personal Information / Opt OutAccept AllPrivacy Preferences
-
- [Skip to main content](https://newsroomeu.chipotle.com/press-releases#content)
+[Skip to main content](https://newsroom.chipotle.com/press-releases#content)
 
 # CHIPOTLE NEWS RELEASES
 
 News releases are archived for three years and are presented in chronological order. Please use the search bar below to search News Releases.
 
-August 2026
+November 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
-| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
-| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
-| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
-| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
-| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
+| 1 | 2 | 3 | 4 | 5 | 6 | 7 |
+| 8 | 9 | 10 | 11 | 12 | 13 | 14 |
+| 15 | 16 | 17 | 18 | 19 | 20 | 21 |
+| 22 | 23 | 24 | 25 | 26 | 27 | 28 |
+| 29 | 30 | 1 | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
 
 Cancel Go
 
-August 2026
+November 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
-| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
-| 9 | 10 | 11 | 12 | 13 | 14 | 15 |
-| 16 | 17 | 18 | 19 | 20 | 21 | 22 |
-| 23 | 24 | 25 | 26 | 27 | 28 | 29 |
-| 30 | 31 | 1 | 2 | 3 | 4 | 5 |
+| 1 | 2 | 3 | 4 | 5 | 6 | 7 |
+| 8 | 9 | 10 | 11 | 12 | 13 | 14 |
+| 15 | 16 | 17 | 18 | 19 | 20 | 21 |
+| 22 | 23 | 24 | 25 | 26 | 27 | 28 |
+| 29 | 30 | 1 | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
 
 Cancel Go
+
+[Alerts![](https://newsroom.chipotle.com/images/webdriver/email_alerts.png)Opens in new window](https://newsroom.chipotle.com/alerts?type=2)
 
 YearAll Years20262025202420232022202120202019201820172016KeywordsGo
 
-[Advanced Search](https://newsroomeu.chipotle.com/press-releases#)
+[Advanced Search](https://newsroom.chipotle.com/press-releases#)
 
 Search
 
@@ -56,97 +50,108 @@ Asset Types
 
 PhotosVideoAudioDocumentsEventsStandard
 
-[Basic Search](https://newsroomeu.chipotle.com/press-releases#)
+[Basic Search](https://newsroom.chipotle.com/press-releases#)
 
-- [![](https://newsroomeu.chipotle.com/file.php/177945/Pollo+Asado+General+PR+UK+Version.jpg?thumbnail=144)Opens in new window](https://newsroomeu.chipotle.com/2026-08-31-INTRODUCING-POLLO-ASADO-CHIPOTLE-BRINGS-ITS-FRESH-TAKE-ON-CHICKEN-ASADO-TO-THE-UK-FOR-THE-FIRST-TIME)
+- [![](https://mmx.prnewswire.com/media/MS2040452/Back-Home-Bogo-PR.jpg?id=OA3093340&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-11-20-CHIPOTLE-BRINGS-BACK-BACK-HOME-BOGO-FOR-THE-BIGGEST-REUNION-NIGHT-OF-THE-YEAR)
 
 
 
-Aug 31, 2026
+Nov 20, 2026
 
 
 
-[INTRODUCING POLLO ASADO: CHIPOTLE BRINGS ITS FRESH TAKE ON CHICKEN ASADO TO THE UK FOR THE FIRST TIME Opens in new window](https://newsroomeu.chipotle.com/2026-08-31-INTRODUCING-POLLO-ASADO-CHIPOTLE-BRINGS-ITS-FRESH-TAKE-ON-CHICKEN-ASADO-TO-THE-UK-FOR-THE-FIRST-TIME)
+[CHIPOTLE BRINGS BACK "BACK HOME BOGO" FOR THE BIGGEST REUNION NIGHT OF THE YEAROpens in new window](https://newsroom.chipotle.com/2026-11-20-CHIPOTLE-BRINGS-BACK-BACK-HOME-BOGO-FOR-THE-BIGGEST-REUNION-NIGHT-OF-THE-YEAR)
 
 
 
 
 
-Unlike proteins that arrive at restaurants already cooked, Chipotle's Pollo Asado is made with chicken grilled fresh in its restaurants throughout the day and finished with garlic, guajillo...
+On Wednesday, November 25, Chipotle Rewards members can score an in-restaurant BUY-ONE-GET-ONE (BOGO) entrée from 5 to 9 p.m. local time at participating U.S. restaurants1 Following Thanksgiving,...
 
 
 
 
 
-  - [Photos1Opens in new window](https://newsroomeu.chipotle.com/2026-08-31-INTRODUCING-POLLO-ASADO-CHIPOTLE-BRINGS-ITS-FRESH-TAKE-ON-CHICKEN-ASADO-TO-THE-UK-FOR-THE-FIRST-TIME#assets_20295_122838-117)
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-11-20-CHIPOTLE-BRINGS-BACK-BACK-HOME-BOGO-FOR-THE-BIGGEST-REUNION-NIGHT-OF-THE-YEAR#assets_20295_122902-117)
 
-- [![](https://newsroomeu.chipotle.com/image/UK_PR_0608_800px.jpg)Opens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS)
+- [![](https://mmx.prnewswire.com/media/MS2032392/Chipotle-Mexican-Grill.jpg?id=OA3071235&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-11-16-CHIPOTLE-DEBUTS-THE-SNEAK-IT-IN-HOODIE-DESIGNED-TO-DISCREETLY-BRING-BURRITOS-TO-THE-MOVIES)
 
 
 
-Jun 8, 2026
+Nov 16, 2026
 
 
 
-[CHIPOTLE UK KICKS OFF SUMMER’S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING FOOTBALL KITSOpens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS)
+[CHIPOTLE DEBUTS THE "SNEAK IT IN" HOODIE DESIGNED TO DISCREETLY BRING BURRITOS TO THE MOVIESOpens in new window](https://newsroom.chipotle.com/2026-11-16-CHIPOTLE-DEBUTS-THE-SNEAK-IT-IN-HOODIE-DESIGNED-TO-DISCREETLY-BRING-BURRITOS-TO-THE-MOVIES)
 
 
 
 
 
-All fans who wear a football kit to Chipotle restaurants in the UK on 11 June after 3 p.m. can receive a buy-one-get-one main1 The Matchday BOGO celebrates the shared experiences and traditions...
+Dropping November 18 at 9 a.m. PT exclusively on ChipotleGoods.com, the limited-edition "Sneak It In" hoodie arrives in time for hit movie releases and holiday gifting The hoodie features a...
 
 
 
 
 
-  - [Photos1Opens in new window](https://newsroomeu.chipotle.com/2026-06-08-CHIPOTLE-UK-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-FOOTBALL-KITS#assets_20295_122837-117)
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-11-16-CHIPOTLE-DEBUTS-THE-SNEAK-IT-IN-HOODIE-DESIGNED-TO-DISCREETLY-BRING-BURRITOS-TO-THE-MOVIES#assets_20295_122901-117)
 
-- Apr 29, 2026
+- [![](https://mmx.prnewswire.com/media/MS2029697/2611_CMG_Friday13thTattoo26-Wiz_PR-ASSET_WIZ_v1_1920x1080.jpg?id=OA3064320&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-11-09-CHIPOTLE-BRINGS-BACK-RECORD-BREAKING-TATTED-LIKE-A-CHIPOTLE-BAG-BOGO-ON-FRIDAY,-NOVEMBER-13)
 
 
 
-[CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTSOpens in new window](https://newsroomeu.chipotle.com/2026-04-29-CHIPOTLE-ANNOUNCES-FIRST-QUARTER-2026-RESULTS)
+Nov 9, 2026
 
 
 
+[CHIPOTLE BRINGS BACK RECORD-BREAKING "TATTED LIKE A CHIPOTLE BAG" BOGO ON FRIDAY, NOVEMBER 13Opens in new window](https://newsroom.chipotle.com/2026-11-09-CHIPOTLE-BRINGS-BACK-RECORD-BREAKING-TATTED-LIKE-A-CHIPOTLE-BAG-BOGO-ON-FRIDAY,-NOVEMBER-13)
 
 
-RETURN TO POSITIVE TRANSACTIONS DRIVES 0.5% COMPARABLE RESTAURANT SALES GROWTH; REVENUE INCREASES 7.4% TO $3.1 BILLION NEWPORT BEACH, Calif., April 29, 2026 /PRNewswire/ -- Chipotle Mexican Grill,...
 
-- Apr 27, 2026
 
 
+Chipotle's Friday the 13th promotion returns Friday, November 13 with a one-hour flash BUY-ONE-GET-ONE (BOGO) entrée offer for tattooed guests from 3 to 4 p.m. local time at participating...
 
-[CHIPOTLE TAPS AWARD-WINNING FERNANDO MACHADO AS CHIEF BRAND OFFICEROpens in new window](https://newsroomeu.chipotle.com/2026-04-27-CHIPOTLE-TAPS-AWARD-WINNING-FERNANDO-MACHADO-AS-CHIEF-BRAND-OFFICER)
 
 
 
 
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-11-09-CHIPOTLE-BRINGS-BACK-RECORD-BREAKING-TATTED-LIKE-A-CHIPOTLE-BAG-BOGO-ON-FRIDAY,-NOVEMBER-13#assets_20295_122899-117)
 
-Appoints Arlie Sisson to newly formed Chief Digital Officer role to accelerate innovation efforts tied to Recipe for Growth strategy NEWPORT BEACH, Calif., April 27, 2026 /PRNewswire/ -- Chipotle...
+- [![](https://newsroom.chipotle.com/file.php/181412/10.6Updated-All31200.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-11-04-CHIPOTLE-EXPANDS-ATHLETE-CARD-PROGRAM-TO-MORE-THAN-2,300-COLLEGE-ATHLETES)
 
-- [![](https://newsroomeu.chipotle.com/file.php/177926/1920x1080+CHC+PR+2_1000.jpg?thumbnail=144)Opens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT)
 
 
+Nov 4, 2026
 
-Apr 21, 2026
 
 
+[CHIPOTLE EXPANDS ATHLETE CARD PROGRAM TO MORE THAN 2,300 COLLEGE ATHLETESOpens in new window](https://newsroom.chipotle.com/2026-11-04-CHIPOTLE-EXPANDS-ATHLETE-CARD-PROGRAM-TO-MORE-THAN-2,300-COLLEGE-ATHLETES)
 
-[CHIPOTLE BRINGS BACK CHIPOTLE HONEY CHICKEN TO THE UK FOLLOWING RECORD-BREAKING DEBUTOpens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT)
 
 
 
 
+Florida State joins The Ohio State University, University of Florida and University of Georgia as the fourth athletic department in Chipotle's growing Athlete Card program
 
-After launching in the UK in 2025, Chipotle Honey Chicken became the brand’s best-performing limited-time offering Guests across the UK can order the protein from April 28 Chipotle Honey Chicken...
 
 
 
 
+  - [Photos4Opens in new window](https://newsroom.chipotle.com/2026-11-04-CHIPOTLE-EXPANDS-ATHLETE-CARD-PROGRAM-TO-MORE-THAN-2,300-COLLEGE-ATHLETES#assets_20295_122898-117)
 
-  - [Photos1Opens in new window](https://newsroomeu.chipotle.com/2026-04-21-CHIPOTLE-BRINGS-BACK-CHIPOTLE-HONEY-CHICKEN-TO-THE-UK-FOLLOWING-RECORD-BREAKING-DEBUT#assets_20295_122833-117)
+- Oct 28, 2026
+
+
+
+[CHIPOTLE ANNOUNCES THIRD QUARTER 2026 RESULTSOpens in new window](https://newsroom.chipotle.com/2026-10-28-CHIPOTLE-ANNOUNCES-THIRD-QUARTER-2026-RESULTS)
+
+
+
+
+
+COMPARABLE RESTAURANT SALES INCREASE 2.1% AS CHIPOTLE DELIVERS A THIRD CONSECUTIVE QUARTER OF POSITIVE TRANSACTION GROWTH NEWPORT BEACH, Calif., Oct. 28, 2026 /PRNewswire/ -- Chipotle Mexican...
+
 
 Show
 
@@ -154,11 +159,13 @@ Show
 
 per page
 
-- [print](https://newsroomeu.chipotle.com/press-releases#print "print")
-- [Opens in new window](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Facebook Share")
-- [Opens in new window](https://www.linkedin.com/shareArticle?mini=true&url=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Linkedin Share")
-- [Opens in new window](https://twitter.com/share?url=https%3A%2F%2Fnewsroomeu.chipotle.com%2Findex.php%3Fs%3D20295 "Twitter Share")
-- [email](https://newsroomeu.chipotle.com/press-releases#email "email")
-- [Opens in new window](https://newsroomeu.chipotle.com/index.php?s=20324&rsspage=20295 "rss")
+- [print](https://newsroom.chipotle.com/press-releases#print "print")
+- [Opens in new window](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Facebook Share")
+- [Opens in new window](https://www.linkedin.com/shareArticle?mini=true&url=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Linkedin Share")
+- [Opens in new window](https://twitter.com/share?url=https%3A%2F%2Fnewsroom.chipotle.com%2Findex.php%3Fs%3D20295 "Twitter Share")
+- [email](https://newsroom.chipotle.com/press-releases#email "email")
+- [Opens in new window](https://newsroom.chipotle.com/index.php?s=20324&rsspage=20295 "rss")
 
-[5Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=5) [10Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=10) [25Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=25) [50Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=50) [100Opens in new window](https://newsroomeu.chipotle.com/press-releases?l=100)
+(opens in a new window)
+
+[5Opens in new window](https://newsroom.chipotle.com/press-releases?l=5) [10Opens in new window](https://newsroom.chipotle.com/press-releases?l=10) [25Opens in new window](https://newsroom.chipotle.com/press-releases?l=25) [50Opens in new window](https://newsroom.chipotle.com/press-releases?l=50) [100Opens in new window](https://newsroom.chipotle.com/press-releases?l=100)
